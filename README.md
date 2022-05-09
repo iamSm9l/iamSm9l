@@ -4,7 +4,7 @@ Sm9l
 
 \- Studying Computer Science with Cybersecurity.
 
-\- 🏳️‍🌈 any pronouns
+\- 🏳️‍🌈 He/Him
 
 \- http://josephwitten.com
 
